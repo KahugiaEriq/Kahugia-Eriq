@@ -1,1 +1,1 @@
-# Kahugia-Eriq
+# Kahũgia
